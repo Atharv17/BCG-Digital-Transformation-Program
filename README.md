@@ -15,3 +15,6 @@ Task_5) Scaling : Scaling up pilot using agile methodology , created a dashboard
 
 
 
+Skills Demonstrated:
+Market Research, Powerpoint, Financial modelling, MS Excel,Critical thinking,
+Agile methodology,Stakeholder management Project Management. 
