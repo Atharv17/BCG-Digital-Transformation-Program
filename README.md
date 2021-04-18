@@ -18,3 +18,6 @@ Task_5) Scaling : Scaling up pilot using agile methodology , created a dashboard
 Skills Demonstrated:
 Market Research, Powerpoint, Financial modelling, MS Excel,Critical thinking,
 Agile methodology,Stakeholder management Project Management. 
+
+
+<a href = 'https://www.theforage.com/badges/uo6EPcNxofyDwBCMa/yasFTNCAc8eonF8Gk/Badge%20of%20completion%20for%20the%20Open-Access%20Digital%20Transformation%20Virtual%20Experience%20Program/Atharv?ref=uo6EPcNxofyDwBCMa'> View Credentials </a>
